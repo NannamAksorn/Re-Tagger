@@ -1,0 +1,4 @@
+-move alot during day **first 3/4 day after arrive
+-stable when sleep after midnight
+-many pillow
+-many people

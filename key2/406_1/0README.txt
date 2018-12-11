@@ -1,0 +1,1 @@
+Getting off bed had many people carry the patient out
